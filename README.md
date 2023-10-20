@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @mmmuy
-- 👀 I’m interested in hiking and mountain climbing
 - 🌱 I wish I could be confident, brave and fearless
 
 <!---
